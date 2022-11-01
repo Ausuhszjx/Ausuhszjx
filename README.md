@@ -1,10 +1,6 @@
-- 👋 Hi, I’m @Ausuhszjx
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-Ausuhszjx/Ausuhszjx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+hiii? Follow my Ig x.raav
+tiktok .vaniaxvl_
+Nice to meet you! 
+WhatsApp?+62***566***94:v 
+yt anya forger
+さよなら！:3
